@@ -2,7 +2,7 @@ Kisselev Mark - Captain
 
 Kuznetsova Anastasia -Design engineer
 
-Altai Ansar-topolog
+Altay Ansar-topolog
 
 Igishev Artem - Сircuit designer
 
